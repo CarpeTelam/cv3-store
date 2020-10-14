@@ -1,1 +1,1 @@
-# CV3 Templates
+# CV3 Store
